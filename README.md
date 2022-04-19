@@ -1,4 +1,3 @@
 # projects
-The page for my projects
-
-Also Do not claim that you made these (thank fully they are so bad no one would)
+This page is for all of my projects and stuff!
+Also, do not claim my work as yours, even tho its bad, but still
